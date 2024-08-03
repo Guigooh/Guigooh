@@ -7,7 +7,7 @@
 
 ###
 
-<img align="left" height="130" src="https://i.gifer.com/DRO.gif"  />
+<img align="left" height="130" src="https://tenor.com/pt-BR/view/ichigo-kurosaki-final-getsuga-tenshou-gif-18120366"  />
 
 ###
 
